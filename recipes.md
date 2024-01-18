@@ -132,7 +132,6 @@ Instructions:
 4. Add all the dry ingredients: flour, baking powder, and salt.
 5. Mix in the white chocolate chips.
 6. Scoop out the cookie dough.
-7. 
 8. Place onto a lined baking sheet.
 9. Chill the dough for at least 20 minutes.
 10. Bake for 15 minutes.
