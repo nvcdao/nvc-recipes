@@ -113,3 +113,27 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Ube Coookies 
+- 110g butter
+- 1/2 cup white sugar
+- 1 egg
+- 1 tsp ube extract
+- 1/2 cup Ube Halaya
+- 1 1/2 cups All-Purpose Flour
+- 1 tsp baking powder
+- 1/4 tsp salt
+- 100g white chocolate chips
+
+Instructions:
+1. Preheat the oven to 400°F.
+2. In a bowl, cream the butter and sugar.
+3. Add the egg, ube extract, and ube halaya. Mix until well combined.
+4. Add all the dry ingredients: flour, baking powder, and salt.
+5. Mix in the white chocolate chips.
+6. Scoop out the cookie dough.
+7. 
+8. Place onto a lined baking sheet.
+9. Chill the dough for at least 20 minutes.
+10. Bake for 15 minutes.
+
